@@ -10,6 +10,10 @@
 
 - 🌱 I’m currently learning **Data Structures and Algorithms.**
 
+- ⚡Reach me in Linkedin **https://www.linkedin.com/in/Yashraj9673**
+
+- ⚡Reach me in Hacker Rank **https://www.hackerrank.com/yashrajchaudhar3**
+
 - 📫 How to reach me **yashrajchaudhari48924@gmail.com**
 
 - ⚡ Fun fact **I play games and go to the GYM very often.**
